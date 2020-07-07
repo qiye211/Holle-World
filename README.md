@@ -1,2 +1,2 @@
 # Holle-World
-新人新建
+Hi everyone, I'm the new guy.
